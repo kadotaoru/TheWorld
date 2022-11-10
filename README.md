@@ -15,3 +15,5 @@
 1107 I started the cold shower and work out💪
 1108 The bank day.
 1109 I took the nap for 3 hours. Kinda shit day.
+1110 I took 123g for protein. Nice cook.
+
