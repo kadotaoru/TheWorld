@@ -18,3 +18,6 @@
 1110 I took 123g for protein. Nice cook.
 1115 The party ate the sharering house.
 1116 It's first time to ボード at the job.
+1117 just work and sleep. Tired and shit day.
+1118 customer 99. Really rare.
+
