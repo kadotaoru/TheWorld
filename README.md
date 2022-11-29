@@ -21,4 +21,4 @@
 1117 just work and sleep. Tired and shit day.
 1118 customer 99. Really rare.
 1123 195 the busiest day.
-1124
+1128,9 Kusatsu trip. Night birthday.
