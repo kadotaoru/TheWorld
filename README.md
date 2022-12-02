@@ -22,3 +22,5 @@
 1118 customer 99. Really rare.
 1123 195 the busiest day.
 1128,9 Kusatsu trip. Night birthday.
+1201 Mother's birthday
+1202 holiday
