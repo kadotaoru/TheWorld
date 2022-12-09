@@ -24,3 +24,4 @@
 1128,9 Kusatsu trip. Night birthday.
 1201 Mother's birthday
 1202 holiday
+1208 Got covid
